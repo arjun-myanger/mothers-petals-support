@@ -6,6 +6,6 @@ This app delivers daily spiritual quotes from *The Mother* and *Sri Aurobindo* t
 
 For support or inquiries, please contact:
 
-📧 **arjun.deepak.myanger@gmail.com**
+📧 **amsiege1998@gmail.com**
 
 Thank you for using the app 🙏
